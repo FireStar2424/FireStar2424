@@ -1,0 +1,5 @@
+- ummmmmmmmmm hi
+- I Scratch
+- I'm more into Scratch
+- FireStar2424 is also the name of my Scratch account
+- yeah
