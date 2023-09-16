@@ -2,4 +2,5 @@
 - I Scratch
 - I'm more into Scratch
 - FireStar2424 is also the name of my Scratch account
+- i also insta ig (@firestar2424)
 - yeah
