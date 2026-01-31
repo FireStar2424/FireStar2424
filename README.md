@@ -1,3 +1,2 @@
 - ummmmmmmmmm hi
-- i insta ig (@firestar2424)
 - yeah
